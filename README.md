@@ -1,5 +1,3 @@
 # I'm Jonje
-- Hello guys im a little Alien from Xearth
-- me noob developer!!
-
-- wooooooooo dam !!!
+im 17 year old boy from earth nnn
+im noob xd
