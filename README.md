@@ -1,4 +1,5 @@
 # I'm Jonje
 im 17 year old boy from earth nnn
 im noob xd
-![AnimeJonje](https://github.com/user-attachments/assets/9ff8defb-16ac-4160-8da9-b6893b261c94)
+
+![InShot_20240802_222317908](https://github.com/user-attachments/assets/fe171c01-23a3-4f50-9304-8cfd08c98df5)
